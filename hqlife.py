@@ -1,1 +1,0 @@
-gand me dal le hq lives k9
